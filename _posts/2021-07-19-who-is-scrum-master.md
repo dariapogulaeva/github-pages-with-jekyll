@@ -1,0 +1,1 @@
+The Scrum Master is the Servant Leader for the Scrum Team and for the organization as a whole. Helps everyone to understand the theory and practice of Scrum, trains the team to remove obstacles, coaches the team and facilitates Scrum Events.
